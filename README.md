@@ -1,2 +1,2 @@
 # ProjectoPalangana
-que palangana este projecto xd
+re pro este projecto
